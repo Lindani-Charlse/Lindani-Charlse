@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming, i enjoy problem analysing and solving
 - 🌱 I’m currently studying my Diploma in Computer Science at Tshwane University of Technology (2nd Year)
 - 💞️ I’m looking to collaborate on any available opportunity where i will be able to grow up my skills
-- 📫 How to reach me : email - lindanymnguni@gmail.com, +27664208613
+- 📫 How to reach me : email - lindanymnguni@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
